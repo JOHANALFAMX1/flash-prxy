@@ -1,1 +1,1 @@
-# 💯🔥SSH-CDN-FLASH🔥💯
+# 💯🔥SSH-WS-CDN-FLASH🔥💯
